@@ -1,6 +1,6 @@
 # Corruptbox3 x Sprunki: Play Free Online!
 
-[![Corruptbox3 x Sprunki Banner](<Insert Image URL Here - Replace with a compelling image/gif>)]
+[![Corruptbox3 x Sprunki Banner](https://data.gameflare.com/games/10531/a9HSkBI2rFHuEk-400-300.jpg)]
 
 ## Experience the Ultimate Rhythm Game Crossover!
 
