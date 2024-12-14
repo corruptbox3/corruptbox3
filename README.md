@@ -1,5 +1,5 @@
 # Corruptbox3 x Sprunki: Play Free Online!
-**Ready to Dive into the Glitch? Play FREE now at:** [https://www.corruptbox.cc/](https://www.corruptbox.cc/)
+**Ready to Dive into the Glitch? Play FREE now at:** [https://www.corruptbox.cc/](https://www.corruptbox.cc/)]
 [![Corruptbox3 x Sprunki Banner](https://data.gameflare.com/games/10531/a9HSkBI2rFHuEk-400-300.jpg)]
 
 ## Experience the Ultimate Rhythm Game Crossover!
